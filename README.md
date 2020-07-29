@@ -1,1 +1,0 @@
-# jornarileesh.github.io
